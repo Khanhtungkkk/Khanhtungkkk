@@ -1,2 +1,2 @@
--Tạo ngày 4 tháng 10 ở bệnh xá quân dân y
+-Tạo ngày 4 tháng 10 năm 2021 ở bệnh xá quân dân y
 - Liên kết Microsoft 365 e5 để renew 90 ngày
